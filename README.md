@@ -4,11 +4,13 @@
 
 ### What is one thing that has surprised you so far in Cardiff?
 
-your response
+I've been suprised by how walkable the city is.
 
 ### What are three things that you hope to get out of your study abroad experience this semester?
 
-your response
+- I hope to learn some Welsh 
+- I hope to visit more places in the UK and Europe
+- I hope to make new friends
 
 ## Feedback
 
