@@ -14,5 +14,5 @@ I've been suprised by how walkable the city is.
 
 ## Feedback
 
-Once you commit and push your work to Github, I'll update this section with feedback.
+Glad you're getting around Cardiff so well (and easily!)
 
